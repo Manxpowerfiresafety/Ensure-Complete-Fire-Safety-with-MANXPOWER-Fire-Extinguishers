@@ -24,4 +24,16 @@ The fire extinguisher ball by MANXPOWER is a revolutionary device that activates
 Complementing our extinguishers, the MANXPOWER fire blanket provides an instant solution to extinguish small fires or protect people during evacuation. It is particularly useful in kitchens, workshops, and welding areas.<br>
 <h3>Final Thoughts</h3>
 Fire emergencies are unpredictable, but your response doesn’t have to be. With MANXPOWER fire extinguishers and fire safety products, you're investing in quality, reliability, and peace of mind. Choose MANXPOWER to protect what matters most — your family, employees, property, and future.<br>
-<b>Stay safe. Stay protected. Choose MANXPOWER.</b>
+<b>Stay safe. Stay protected. Choose MANXPOWER.</b><br>
+<h3>Get in touch with us:</h3>
+<b>Visit: https://manximpex.com/fire-extinguisher-2/ </b><br>
+<b>E-mail: info@manximpex.com </b><br>
+<b>Contact Number: +91- 7065192900, +91- 7428115550</b><br>
+<b>Address: 3963/9, Ground Floor, City Market, Ajmeri Gate, Delhi 110006 </b><br>
+<h3>Follow us on:</h3>
+<b>Instagram: https://www.instagram.com/manximpex/ </b><br>
+<b>Facebook: https://www.facebook.com/manximpex/ </b><br>
+<b>LinkedIn: https://in.linkedin.com/company/manx-impex </b><br>
+<b>Youtube: https://www.youtube.com/c/ManxImpex  </b><br>
+<h3>Read our blog:</h3>
+<b>How to Properly Maintain and Inspect Fire Extinguishers: https://manximpex.com/maintain-inspect-fire-extinguishers/</b>
